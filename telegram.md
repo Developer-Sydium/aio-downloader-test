@@ -7,6 +7,210 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/28 20:03
+---
+
+## WithYashar — post 11557
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه های عبری:
+
+ترامپ‌ امشب دستور بمباران را صادر میکند
+@withyashar
+</div>
+
+## pm_afshaa — post 90967
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_90967_1779122001.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یینگست، خبرنگار فاکس‌ نیوز: ما تو آستانه بازگشت به عملیات‌های رزمی تمام‌عیار هستیم
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90966
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️رسانه های عبری : ترامپ‌ امشب دستور بمباران را صادر میکند
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 4707
+
+<div align="center">
+  <a href="telegram/content/DEJradio_4707_1779122002.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👑
+🔺 شاهزاده رضا پهلوی: «فرض کنید همین نمونه سیلیکون ولی را بشود در بلوچستان پیاده کرد. چرا که نه!»
+
+نشست آینده تکنولوژی در ایران
+سان‌فرانسیسکو، ۲۶ اردیبهشت ۲۵۸۵/۱۴۰۵
+
+#شاهزاده_رضا_پهلوی #سیستان_بلوچستان
+
+@DEJradio
+</div>
+
+## kianmeli1 — post 87465
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ در مورد ایران به «العربیه»: کار با عظمتی انجام می‌دهیم و پیروزی پیش روی ما است.
+https://t.me/kianmeli1
+</div>
+
+## FarsiVOA — post 218073
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218073_1779122002.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در روزهای اخیر در چند برنامه زنده صداوسیمای جمهوری اسلامی، استفاده از ابزار جنگی آموزش داده شد و مجریان با در دست گرفتن اسلحه ظاهر شدند.
+
+این بار مجری مسلح و کارشناس برنامه به تصاویر بنیامین نتانیاهو و دونالد ترامپ تیراندازی کردند.
+
+این تصاویر، واکنش‌های گسترده‌ای را درباره عادی‌سازی خشونت و ترویج فضای امنیتی در ایران برانگیخته است.
+</div>
+
+## Persian_Trend_Official — post 14423
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14423_1779122004.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇮🇷ایران از شرکت‌های بزرگ فناوری آمریکا از جمله گوگل، مایکروسافت، متا و آمازون درخواست دریافت هزینه مجوز برای «کابل‌های اینترنت زیرآبی» واقع در تنگه هرمز و خلیج فارس کرده است.
+
+🐣
+🪙
+🛒
+🖥
+🖥
+
+
+🇮🇷سپاه پاسداران تهدید کرده است که در صورت عدم رعایت مقررات محلی توسط این شرکت‌ها، ترافیک را محدود خواهد کرد که ممکن است «اتصال داده‌ها بین اروپا، آسیا و خاورمیانه را مختل کند».
+
+کابل‌های عبوری از تنگه هرمز و دریای سرخ ۱۷٪ از ترافیک جهانی را حمل می‌کنند.
+
+
+🦁Phantom
+🦁
+
+
+🌏@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Dirty_Kids — post 389689
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389689_1779122004.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حکومتی‌ها پرچم مبارزه با امریکا رو بلند میکنن ولی تا خشتک امریکایی هستن و کمک به اقتصاد امریکا میکنن
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389688
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389688_1779122006.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شورتش کو :))))))
+#تراپی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389687
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389687_1779122006.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🌪وقتی اینترنت طوفانیه... کافیه بادبان ها رو بکشی تا
+
+
+⚫️با بالاترین کیفیت ممکن
+⚡️ 
+
+⚫️100 هزار تومان شارژ هدیه 
+🎁
+
+⚫️پایین ترین قیمت گیگی 250
+🌐 
+
+⚫️و ارائه پورسانت %10 در ازای هر معرفی
+💼
+
+بتونی یه اتصال پایدار با پشتیبانی 24 ساعته داشته باشی
+🚀
+
+بادبان راهتو باز می‌کنه
+⛵️
+
+G28
+
+🛡@BadBan_VPN | کانال 
+
+🤖@BadBan_VPNBot | ربات 
+
+📞@BadBan_VPNSupport | پشتیبانی
+</div>
+
+## alonews — post 120912
+
+<div align="center">
+  <a href="telegram/content/alonews_120912_1779122007.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تری یینگست، خبرنگار فاکس‌ :
+- ما تو آستانه بازگشت به عملیات‌های رزمی تمام‌عیار هستیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120911
+
+<div align="center">
+  <a href="telegram/content/alonews_120911_1779122007.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر کشور پاکستان که در سفری دو روزه برای آخرین میانجیگری میان ایران و آمریکا به تهران سفر کرده بود، پس از رد آخرین پیشنهاد ایران توسط آمریکا، دقایقی پیش تهران را ترک کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120910
+
+<div align="center">
+  <a href="telegram/content/alonews_120910_1779122007.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / کاخ سفید: آخرین پیشنهاد ایران که امروز ارائه شد نیز به دلیل ناکافی‌ بودن به صورت کامل رد شد، دیگر بمب ها مذاکره خواهند کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/28 19:53
 ---
 
