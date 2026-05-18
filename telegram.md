@@ -7,6 +7,193 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/28 21:03
+---
+
+## WithYashar — post 11570
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ:من از دست تهران «کلافه» نیستم
+
+@withyashar
+</div>
+
+## WithYashar — post 11569
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار نیویورک‌پست:
+
+هنوز حاضرید اجازه تعلیق فقط ۲۰ سال اورانیوم به ایران بدید؟
+
+ترامپ: من اجازه هیچ چی رو نمیدم!
+@withyashar
+</div>
+
+## WithYashar — post 11568
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه مقام اسرائیلی امشب به i24NEWS گفت:
+سطح آماده‌باش واسه احتمال از سرگیری جنگ تا آخر همین هفته، فوق‌العاده بالاست.
+@withyashar
+</div>
+
+## mwarmonitor — post 9263
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴✈️«ساعت ۱۸:۲۴ به وقت گرینویچ— هواپیمای بمب‌افکن استراتژیک B-1B با شناسه PAVER 04 به‌صورت تکی از پایگاه RAF Fairford به پرواز درآمده و در حال برقراری ارتباط/فعالیت با RAF Brize Norton روی فرکانس ۲۳۱٫۹۵۰ است.»
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 341881
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341881_1779125632.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Alex Murdaugh’s legal team announces a federal civil rights lawsuit against former court clerk Becky Hill for jury tampering.
+
+The lawsuit argues that Hill's actions during Murdaugh’s trial, which eventually led to the disgraced lawyer’s murder charges being overturned by the South Carolina Supreme Court, completely violated Murdaugh's right to a fair trial.
+
+“It has been a judged as a matter of state law that she deprived Alex of his constitutional rights, deprived him of a right to a fair trial, and as a result.”
+</div>
+
+## pm_afshaa — post 90971
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_90971_1779125634.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پراتون بریزه که کانفیگ آوردیم زیر قیمت! 😰🤑
+
+هر یک گیگ کانفیگ 170 هزار تومن 🤑
+پینگ کانفیگ ها زیر 100 🚀
+
+، مناسب برای چرخ زدن تو اینستا ، یوتیوب ▶️، تلگرام ✈️، توییتر 🐦 و تیک تاک 🎧
+مناسب برای تمام گیم‌ها 🎮 و تریدرها ↗️
+
+هم لینک ساب بهتون ارائه میشه 🔗، هم می‌تونید داخل خود ربات حجم مصرفی و باقی مونده رو چک کنید 🤖📊
+
+با تضمین برگشت وجه ✅
+
+ادرس ربات برای تهیه سرویس🫴
+@Unique_vpnbot
+
+لینک کانال یونیک. 🔽
+@networkunique_IR
+</div>
+
+## pm_afshaa — post 90970
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزیر خزانه داری آمریکا: مجوز موقت 30 روزه برای خرید نفت روسیه صادر شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 337818
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337818_1779125635.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در گفت‌وگویی کوتاه با نیویورک پست اعلام کرد که پس از دریافت پاسخ اخیر جمهوری اسلامی درباره مذاکرات، «هیچ تمایلی» به دادن هیچ‌گونه امتیاز به تهران ندارد.
+او همچنین هشدار داد جمهوری اسلامی می‌داند «به‌زودی چه اتفاقی خواهد افتاد»، بدون آنکه جزئیات بیشتری ارائه کند.
+
+ترامپ در پاسخ به پرسشی درباره اظهارنظرش درباره آمادگی برای پذیرش توقف ۲۰ ساله غنی‌سازی اورانیوم جمهوری اسلامی گفت: در حال حاضرآماده دادن هیچ امتیازی نیستم. واقعا نمی‌توانم درباره این موضوع صحبت کنم. اتفاقات زیادی در حال رخ دادن است.
+
+ترامپ افزود که از تهران «عصبانی یا ناراحت» نیست، اما تاکید کرد جمهوری اسلامی به‌خوبی می‌داند آمریکا توان وارد کردن فشار و خسارت بیشتر را دارد. می‌توانم بگویم آن‌ها بیش از هر زمان دیگری خواهان توافق هستند، چون می‌دانند به‌زودی چه اتفاقی در راه است.
+
+ترامپ: این یک مذاکره است و نمی‌خواهم اقدام احمقانه‌ای انجام دهم.
+https://iranintl.com/202605186094
+</div>
+
+## Persian_Trend_Official — post 14431
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال رسمی پرشین ترند pinned «https://youtube.com/live/7aZKWyXxQog?feature=share»
+</div>
+
+## Persian_Trend_Official — post 14430
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/7aZKWyXxQog?feature=share
+</div>
+
+## IranianMinds — post 20359
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ به نیویورک تایمز :
+
+هیچ امتیازی برای تهران «باز نیست» و ایران می‌داند «به زودی چه اتفاقی قرار است بیفتد».
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20358
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20358_1779125636.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سمت چپ : مدرسه ابتدایی خمینی در موصل عراق ، هدیه جمهوری اسلامی ، سمت راست : کلاس درس بدون سقف یک مدرسه ابتدایی در ایران ...
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20357
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20357_1779125636.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅ (فقط ۲۰۰ هزار تومن)🥺
+
+
+🌱 قیمت اقتصادی + پشتیبانی حرفه‌ای
+
+🚀 سریع و پایدار، بدون قطعی
+🦋پشتیبانی واقعی، همیشه در دسترس
+
+ربات ما🌴
+📩 @dayaconfigbot
+
+کانال ما🌳
+📩 @dayavpn
+</div>
+
+## BBCPersian — post 281388
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻انتشار تصاویری از آموزش کار با اسلحه یا مسابقات آمادگی دفاعی در تجمعات شبانه حامیان جمهوری اسلامی ایران واکنش‌برانگیز شده است. در این تصاویر از غرفه‌هایی در بعضی مساجد و میدان‌ها، کار با سلاح انفرادی به شهروندان، زنان، نوجوانان و حتی کودکان هم آموزش داده می‌شود.
+
+دو روز پیش هم اسلحه به‌دست گرفتن مجریان‌ چند برنامه در صداوسیما و آموزش تلویزیونی کار با سلاح‌های انفرادی انتقادهایی را در بعضی رسانه‌های ایران برانگیخت.
+
+این آموزش‌ها که به سبک درس‌های عملی «آمادگی دفاعی» طرز مسلح کردن و شلیک با سلاح‌های انفرادی را یاد می‌دهد، همزمان با افزایش گمانه‌زنی‌ درباره آغاز دوباره جنگ و عملیات زمینی احتمالی نیروهای متخاصم در خاک ایران است.
+
+گروهی از کاربران در شبکه‌های اجتماعی این آموزش‌ها را «ترویج نظامی‌گری و خشونت در جامعه» دانسته‌اند. بعضی رسانه‌های ایران از جمله روزنامه سازندگی و وبسایت عصر ایران به «پادگان شدن رسانه ملی» انتقاد کرده‌اند.
+
+در مقابل حامیان حکومت این برنامه‌ها را نشانه این دانسته‌اند که «ایران و مردمش بالاترین سطح از اقتدار و آمادگی نظامی» را دارند.
+
+https://bbc.in/4ePspWH
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/02/28 20:53
 ---
 
