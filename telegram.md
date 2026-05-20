@@ -7,6 +7,328 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/30 20:24
+---
+
+## mwarmonitor — post 9359
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رویترز: برخی کشتی‌ها برای تضمین عبور از تنگه هرمز بیش از ۱۵۰ هزار دلار به ایران پرداخت می‌کنند.
+
+🔸هزینه عبور کشتی‌ها از تنگه هرمز بر همه کشورها اعمال نمی‌شود.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342007
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342007_1779296082.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH: President Trump is met with a standing ovation as he finishes his commencement speech to the U.S. Coast Guard Academy.
+
+"The U.S. Coast Guard has never, ever let us down. And with men and women like the great class of 2026, I know that will never happen."
+
+"Wherever the duty calls, whatever danger comes our way, you will fight, fight, fight and you will win, win, win."
+
+"God bless the Coast Guard Academy, the class of 2026. God bless the United States military and God bless the United States of America."
+</div>
+
+## FoxNewsTwitter — post 342006
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342006_1779296083.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NOW: President Trump offers words of advice for Coast Guard Cadets as he wraps his historic commencement speech:
+
+"Most important, never, ever give up. Never give up... I've learned a lot about life, but the one thing I've really learned is that perseverance, never quitting, never giving up is a big deal."
+
+"Never stop pushing forward. No matter how terrible the storm, no matter how difficult the mission. Never surrender."
+</div>
+
+## FarsiVOA — post 218235
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در گفت‌وگو با رضا تقی‌زاده، تحلیلگر روابط بین‌الملل، به حمله پهپادی به نیروگاه هسته‌ای امارات و محکومیت آن از سوی همه اعضای شورای امنیت از جمله روسیه و چین پرداختیم و پرسیدیم آیا این اجماع می‌تواند به تعریف خط قرمزی جدید و شکل‌گیری ائتلافی جدید علیه جمهوری اسلامی و نیروهای نیابتی‌اش بیانجامد؟
+</div>
+
+## FarsiVOA — post 218234
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در گفت‌وگو با شاهین مدرس، تحلیلگر مطالعات امنیتی، به هشدارپرزیدنت ترامپ درباره بازگشت گزینه نظامی، تهدیدهای حکومت ایران و سپاه پاسداران پرداختیم و بررسی کردیم این پیام‌های متقابل چه تأثیری بر محاسبات بازیگران منطقه‌ای و مسیر تنش در روزهای پیش‌رو خواهد گذاشت
+</div>
+
+## FarsiVOA — post 218233
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺پرزیدنت ترامپ درباره عملیات نظامی علیه رژيم ایران: یا توافق امضا می‌شود یا کار را تمام می‌کنیم
+
+▪️رئیس جمهوری آمریکا روز چهارشنبه ۳۰ اردیبهشت در مراسم دانش‌آموختگی آکادمی گارد ساحلی در شهر نیو لاندن، ایالت کنتیکت، درباره اقدام آتی ایالات متحده در قبال جمهوری اسلامی و عملیات نظامی علیه رژيم ایران گفت: «یا توافق امضا می‌شود یا کار را تمام می‌کنیم.»
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/trump-coast-guard-academy/8152031.html/?nocach=1
+</div>
+
+## Persian_Trend_Official — post 14541
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 کانال ۱۲ اسرائیل: اختلافات آمریکا و اسرائیل بر سر ایران تقریباً از بین رفته است
+
+کانال ۱۲ اسرائیل گزارش داد مقام‌های اسرائیلی معتقدند تقریباً هیچ اختلاف مهمی میان تل‌آویو و واشینگتن درباره خواسته‌های مطرح‌شده از ایران در مذاکرات جاری باقی نمانده است.
+
+بر اساس این گزارش:
+
+▪️ با این حال تردیدهای جدی درباره احتمال پذیرش این شروط از سوی تهران وجود دارد
+▪️ ایران تنها به بخشی از پیشنهادها پاسخ داده و درباره سایر مطالبات زمان‌کشی می‌کند
+▪️ اسرائیل مذاکرات را تلاش ایران برای خرید زمان و طولانی‌کردن روند گفت‌وگوها می‌داند
+
+در ادامه آمده:
+
+▪️ بازگشت احتمالی به گزینه نظامی به‌طور جدی در حال بررسی است
+▪️ و گفته می‌شود مقدمات چنین اقدامی از هم‌اکنون در حال آماده‌سازی است
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14540
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢سخنگوی وزارت خارجه: تبادل پیام‌ها بین طرف ایرانی و آمریکایی براساس متن ۱۴بندی ایران ادامه دارد
+
+▪️حضور وزیر کشور پاکستان برای تسهیل مبادلۀ پیام‌هاست.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14539
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 رویترز: برخی کشتی‌ها برای عبور از تنگه هرمز به ایران پول پرداخت می‌کنند
+
+💢خبرگزاری رویترز گزارش داد برخی کشتی‌ها برای تضمین عبور امن از تنگه هرمز، مبالغی بیش از ۱۵۰ هزار دلار به ایران پرداخت می‌کنند.
+
+بر اساس این گزارش:
+
+▪️ این پرداخت‌ها با هدف جلوگیری از توقیف یا ایجاد مشکل در مسیر عبور انجام می‌شود
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 20459
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 مارک روته، دبیرکل ناتو:
+
+«بسیاری از کشورهای عضو ائتلاف در حال انتقال منابع نظامی به منطقه تنگه هرمز هستند»
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20458
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅ (فقط ۲۰۰ هزار تومن)🥺 🌱 قیمت اقتصادی + پشتیبانی حرفه‌ای 🚀 سریع و پایدار، بدون قطعی 🦋پشتیبانی واقعی، همیشه در دسترس ربات ما🌴 📩 @dayaconfigbot کانال ما🌳 📩 @dayavpn
+</div>
+
+## IranianMinds — post 20457
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_20457_1779296085.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ :
+
+«ونزوئلا بیست سال پیش واقعاً کشور بسیار خوبی بود؛ اما مسیر اشتباهی را در پیش گرفت.
+
+همان مسیری را رفت که بعضی‌ها دوست دارند این کشور را به آن سمت ببرند برخی دیوانه‌ها می‌خواهند این کشور را به‌شدت به سمت چپ ببرند و آن را نابود کنند.»
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20456
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_20456_1779296087.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ درباره ایران :
+
+«ما ضربه بسیار سختی به آن‌ها وارد کردیم. ممکن است مجبور شویم حتی ضربه سخت‌تری هم وارد کنیم اما شاید هم نه.
+
+ما اجازه نخواهیم داد ایران به سلاح هسته‌ای دست پیدا کند و تمام خاورمیانه را منفجر کند و بعد سراغ شما بیاید.»
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 389826
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هوش مصنوعی بله:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389825
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389825_1779296088.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با اون برنامه اى كه با هلال احمر درآورد و اون چاپلوسى كه براى ج.ا كرد، انتظار ديگه اى نميرفت, يجورى حرف ميزنه انگار تويه دادگاه عادلانه محاكمه شده نه دادگاه ج.ا
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389824
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389824_1779296090.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+طنز ماجرا اینجاست که یک حرومزاده به اسم محسن سازگارا دست راست خمینی و موسس سپاه میگه نه به پهلوی و از دموکراسی بگو (:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389823
+
+<div align="center">
+  <a href="https://t.me/Dirty_Kids/389823" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅ اپلیکیشن اندروید سایت جهانی دربی بت
+
+💰اولین سایت جهانی با امکان شارژ و برداشت ریالی(کارت به کارت)
+
+🔗 برای ورود فیلترشکن روی کشور مناسب قرار دهید مانند فنلاند و المان و....
+
+😀Telegram Channel
+👇
+https://t.me/+bcynkEgSW2dlYTc0
+</div>
+
+## Dirty_Kids — post 389822
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389822_1779296090.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!
+⛔
+
+
+👍دربی بت همون انتخاب  100%
+
+
+💎ویژگی های سایت جهانی Derby Bet:
+
+⬅️امکان شارژ امن با کارت بانکی
+
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+
+⬅️پر اپشن ترین سایت فعال در ایران
+
+⬅️تسویه حساب کمتر از 5 دقیقه
+
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+
+🚨کد هدیه ثبت نام:GG007
+
+
+⚠️برای دانلود اپلکیشن کلیک کنید
+👉
+
+
+🔔کانال دربی بت :
+
+🪙https://t.me/+bcynkEgSW2dlYTc0
+</div>
+
+## Dirty_Kids — post 389818
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جنده ننه توعه هرشب تو خیابون صیغه میشه
+
+ذهن مریض تو که سیو کردی اینارو فقط که ناخواسته باعث شادی و خاطره بازی ما میشه
+
+
+[شبی که ابرام رییسی سقط شد]
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 121369
+
+<div align="center">
+  <a href="telegram/content/alonews_121369_1779296091.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈داده‌های تازه کلودفلر رادار نشان می‌دهد ترافیک اینترنت ایران طی ۲۴ ساعت گذشته افزایش محسوسی داشته است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121368
+
+<div align="center">
+  <a href="telegram/content/alonews_121368_1779296091.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سخنگوی وزارت خارجه: تبادل پیام‌ها بین طرف ایرانی و آمریکایی براساس متن ۱۴بندی ایران ادامه دارد.
+
+
+🔴حضور وزیر کشور پاکستان برای تسهیل مبادلۀ پیام‌هاست
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121367
+
+<div align="center">
+  <a href="telegram/content/alonews_121367_1779296091.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ادعای ای ۲۴ نیوز به نقل از بک منبع آگاه: پیشرفت‌هایی در گفتگو با ایرانی‌ها درباره «یادداشت تفاهم و اصول» که زیرساخت مذاکرات را می‌سازد، وجود دارد. اما اختلافات هنوز زیاد است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/30 20:13
 ---
 
